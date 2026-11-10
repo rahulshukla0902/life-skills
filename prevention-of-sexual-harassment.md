@@ -3,7 +3,7 @@
 
 **1. What kinds of behaviour cause sexual harassment?**
 
-Sexual harassment can be caused in variour scenarios. Some of them are listed below:
+Sexual harassment can be caused by variour scenarios. Some of them are listed below:
 * Showcasing or saying suggestive and objectionable things.
 * Staring, long handshake, commenting indirectly about someone.
 * Inappropriately touching, hugging, and rubbing.
