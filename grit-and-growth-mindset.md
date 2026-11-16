@@ -5,6 +5,7 @@
 ## Grit
 
 **1. Paraphrase (summarize) the video in a few (1 or 2) lines. Use your own words.**
+
 Grit is sustained passion and long-term perseverance that results in extraordinary achievements more often than talent or IQ.
 
 ## Introduction to Growth Mindset
